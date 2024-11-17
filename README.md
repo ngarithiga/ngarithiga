@@ -1,4 +1,4 @@
-Hi, I’m @ngarithiga!
+Hi, I’m Benson Thiga
 I have a deep passion for anything techy—if it’s got gears, code, or circuits, I’m in!
 I’m currently navigating the exciting world of Mechanical Engineering (basically, I build cool stuff).
 I’m looking to collaborate on creative projects that push boundaries and spark innovation.
